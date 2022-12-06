@@ -1,0 +1,1 @@
+# transpozunu-alma
